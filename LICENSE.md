@@ -1,4 +1,4 @@
-# 
+# الأفضل Affinity Designer أدوات لـ Mac OS | مخصص Affinity Designer أدوات لـ PC Windows. مع شبكة فن البكسل و الشبكة والأدلة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
